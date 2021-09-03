@@ -1,1 +1,1 @@
-# Shpargalka qqwerty
+# Shpargalka q
